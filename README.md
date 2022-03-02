@@ -3,6 +3,7 @@
 - How to reach me ...
 - skype: sadaf fatin
 - whatsapp: +8801703491724
+- linkedin: 
 - email: sadaf@qzonetech.com, shoumick922@gmail.com
 
 <!---
